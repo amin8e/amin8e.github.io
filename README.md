@@ -1,1 +1,0 @@
-# amin8e.github.io
